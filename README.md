@@ -8,4 +8,4 @@ Este proyecto servirá como una guía de uso en sus primeras versiones.
 
 Cualquier propuesta o sugerencia de mejora será bien recibida.
 
-Para cualquier cosa contacte conmigo en: paulaballes----@gmail.com
+Para cualquier cosa contacte conmigo en: paulaballes----@hotmail.com
